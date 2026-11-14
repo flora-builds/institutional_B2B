@@ -2,6 +2,8 @@
 
 **Co-founding, commercializing, and evolving a specialist professional offering in a regulated market**
 
+![Institutional B2B Growth — Partnerships, Business Model Evolution and Professional Adoption](institutional-b2b-growth.png)
+
 *An anonymized case study in venture building, founder-led growth, institutional sales, and product development.*
 
 > **My role:** Co-founder | Commercial Development, Marketing & Institutional Relationships  
