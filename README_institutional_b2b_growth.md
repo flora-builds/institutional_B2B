@@ -1,6 +1,7 @@
 # From Market Gap to Institutional B2B Adoption
 
 **Co-founding, commercializing, and evolving a specialist professional offering in a regulated market**
+Estimated reading time: 9 min
 
 ![Institutional B2B Growth — Partnerships, Business Model Evolution and Professional Adoption](institutional-b2b-growth.png)
 
