@@ -2,7 +2,7 @@
 
 **Co-founding, commercializing, and evolving a specialist professional offering in a regulated market**
 
-Estimated reading time: 9 min
+Estimated reading time: 7 min
 
 ![Institutional B2B Growth — Partnerships, Business Model Evolution and Professional Adoption](institutional-b2b-growth.png)
 
